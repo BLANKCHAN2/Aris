@@ -1,10 +1,12 @@
 千禧年科学学园所属，游戏开发部的部员。在废墟中被发现的谜之少女，包括年龄在内的情报完全未知。现今，成为了与桃井、绿以及柚子三人共同享受游戏的重度发烧友。说话总有些结结巴巴、不自然的地方，那是因为她说的话基本上都是由复古游戏的台词构成的。
 
-![image-20231124235355012](C:\Users\XJY11\AppData\Roaming\Typora\typora-user-images\image-20231124235355012.png)
+![img](https://i0.hdslb.com/bfs/article/86c87309095423e6f1d1af77f866ba80db28936a.png)
 
 **光之剑：超新星**
 爱丽丝从工程师部拿到的巨型轨道炮。
 重量及火力超乎凡响，对一般学生而言就连携带都很困难。
 
-![](C:\Users\XJY11\Pictures\kingsoft\aiface\1676958151759106048\BA_Arm_Arisu.png)
+[
+
+![光之剑：超新星](https://img.moegirl.org.cn/common/thumb/2/29/BA_Arm_Arisu.png/450px-BA_Arm_Arisu.png)
 
